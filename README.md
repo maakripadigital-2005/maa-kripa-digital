@@ -1,1 +1,1 @@
-# maa-krupa-digital
+# maa-kripa-digital
